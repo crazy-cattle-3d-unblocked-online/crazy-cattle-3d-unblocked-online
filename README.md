@@ -2,9 +2,10 @@
 
 [Play Crazy Cattle 3D Unblocked Online!](https://crazycattle3dunblocked.online/)
 
+![Crazy Cattle 3D Unblocked](https://image.crazycattle3dunblocked.online/create-cattle-3d-unbloked.png)
+
 ## How to Play Crazy Cattle 3D Unblocked
 
-![Crazy Cattle 3D Unblocked](https://image.crazycattle3dunblocked.online/create-cattle-3d-unbloked2.png)
 
 ### Controls
 
@@ -33,6 +34,7 @@
 - **Ireland:** Great for beginners with gentle hills and natural ramps. Perfect for practicing momentum.
 - **Iceland:** Volcanic hazards are death traps. Use them to set up clever ambushes.
 - **New Zealand:** Challenging mountainous terrain offers the most spectacular (and risky) plays.
+![Crazy Cattle 3D Unblocked 4 remain](https://image.crazycattle3dunblocked.online/create-cattle-3d-unbloked2.png)
 
 ## Features
 
